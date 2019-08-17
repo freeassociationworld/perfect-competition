@@ -1,4 +1,4 @@
-# perfect-competition
+# Perfect Competition
 Football is the greatest sport on earth. It is played in every country and at many different levels. The Laws of the Game are the same for all football throughout the world from the FIFA World Cup™ Final through to a game between young children in a remote village.
 
 That the same Laws apply in every match in every confederation, country, town and village throughout the world is a considerable strength which must be preserved. This is also an opportunity which must be harnessed for the good of football everywhere.  
